@@ -1,0 +1,1 @@
+https://www.notion.so/TYPESCRIPT-WEEK-1-1d1f153394d48034889efb6c343b605d
